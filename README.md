@@ -1,0 +1,2 @@
+# Fort-Saskatchewan-Electrician
+Proline Electric is a full service electrical contracting company serving residential and commercial customers in the St. Albert, Edmonton area for the past 20 years. Providing Lighting Installation Services, Electrical Wiring Services, Panel Upgrade Services and other services for new construction, renovations, tenant improvements, service upgrades, exterior, interior and landscape lighting, retrofits and service installations.
